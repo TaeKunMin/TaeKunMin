@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TaeKunMin
-- 👀 I’m interested in Cyber Hacking
+- 👀 I’m interested in Cyber Hacking, Golf, Tennis
 - 🌱 I’m currently learning Artificial Intellignece, Embedded System
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me Come to Rokafa Western Bulding 3rd Floor South hall
